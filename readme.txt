@@ -1,2 +1,2 @@
 Hello China!
-I am a men! 
+I am a man! 
